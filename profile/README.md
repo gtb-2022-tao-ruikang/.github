@@ -10,19 +10,20 @@ At work, I am serious and responsible, and most importantly, I love teamwork ver
 
 This is me in 2022（肥宅版）:
 
-![2edb113b860f5555e55b1863a1347b7](C:\Users\Rico_Tea\AppData\Local\Temp\WeChat Files\2edb113b860f5555e55b1863a1347b7.jpg)
+![2edb113b860f5555e55b1863a1347b7](https://user-images.githubusercontent.com/52640916/154053982-0d2bd21a-e8d8-4d23-be57-93229436e6e2.jpg)
 
-![1bc89eb400afe4d923d4d6db75c001a](C:\Users\Rico_Tea\AppData\Local\Temp\WeChat Files\1bc89eb400afe4d923d4d6db75c001a.jpg)
+![1bc89eb400afe4d923d4d6db75c001a](https://user-images.githubusercontent.com/52640916/154054015-014de3ff-482c-4dcf-8c7a-ea4c28fe2e27.jpg)
 
 
 
 This is me in 2021（疫情在家版）:
 
-![微信图片_20210907180336](C:\Users\Rico_Tea\Pictures\微信图片_20210907180336.jpg)
+![微信图片_20210907180336](https://user-images.githubusercontent.com/52640916/154054075-5d60a160-35a1-4495-802a-6909d040c9ad.jpg)
 
 
 
 And 这是 work outing ME in 2020~2021：
 
-![399471b6ee9bea7fb55772068d2a4a3](C:\Users\Rico_Tea\AppData\Local\Temp\WeChat Files\399471b6ee9bea7fb55772068d2a4a3.jpg)![b5080b853491630d1a0748e57de1c53](C:\Users\Rico_Tea\AppData\Local\Temp\WeChat Files\b5080b853491630d1a0748e57de1c53.jpg)
+![b5080b853491630d1a0748e57de1c53](https://user-images.githubusercontent.com/52640916/154054204-36812636-fd36-46df-9198-f529a2d64fb0.jpg)
 
+![399471b6ee9bea7fb55772068d2a4a3](https://user-images.githubusercontent.com/52640916/154054215-295a902a-4926-4a77-a843-1f663ce00d41.jpg)
